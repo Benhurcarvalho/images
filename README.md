@@ -5,3 +5,4 @@
 ![chef](https://user-images.githubusercontent.com/108159316/216667950-3cdf3fa2-95b2-40fd-adb7-5b424cf7a5b5.png)
 
 ![png-clipart-recipe-cooking-chef-dish-food-cooking-food-recipe-thumbnail-removebg-preview](https://user-images.githubusercontent.com/108159316/216671578-117bccd3-ed84-45c4-85c9-3cab136d0cbd.png)
+![hot-chocolate](https://user-images.githubusercontent.com/108159316/216852635-ef0a8085-c0fe-4d80-bed0-53f2c4d06e53.png)
